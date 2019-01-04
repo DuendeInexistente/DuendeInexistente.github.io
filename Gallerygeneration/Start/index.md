@@ -1,8 +1,8 @@
 Repository for my full sizes.
 
-Sketches tumblr: [Here](mymessexpress.tumblr.com)
+Sketches tumblr: [Here](https://mymessexpress.tumblr.com)
 
-High production quality/main tumblr: [Here](cammiliscious.tumblr.com)
+High production quality/main tumblr: [Here](https://cammiliscious.tumblr.com)
 
 Twitter: [Here](https://twitter.com/DInexistente)
 
