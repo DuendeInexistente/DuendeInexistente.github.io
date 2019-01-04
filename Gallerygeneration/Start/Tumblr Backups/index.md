@@ -1,4 +1,4 @@
-Literally every upload to my tumblrs, full sized.
+Every upload to my tumblrs, full sized.
 
 
 Cammiliscious: [Here](https://cammiliscious.tumblr.com)
